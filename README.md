@@ -1,1 +1,1 @@
-# Cursus-AI
+https://cursusai.space-z.ai/
